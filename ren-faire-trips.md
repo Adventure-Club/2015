@@ -9,7 +9,7 @@
 
 **August**    
 8/1 - WA Midsummer Ren Faire 
-8/22 - Camlann Harvest Festival <http://www.camlann.org/harvest%20festival.htm> 
+8/22 - Camlann Harvest Festival \<http://www.camlann.org/harvest%20festival.htm>\ 
 
 **September**  
 9/12 - 9/13: Shrewsbury Ren Faire    
