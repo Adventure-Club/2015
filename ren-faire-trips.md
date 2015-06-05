@@ -16,8 +16,53 @@
 
 ***
 
+####**IMPORTANT**
+**Please consider the following event constraints:**   
+* Costumes are required _(by me, not the festivals - they are far less tyrannical than I am)_ 
+    * no specificity regarding _what_ costumes, but you should make an attempt to keep a logical continuity 
+    * i.e. I'm Spock, a time traveler from the future researching early human history, 
+    * or, I am a villager out to buy some bread and flirt with the cute knights/wenches, etc.
+    * I can loan costumes (male & female of a fairly wide variety) for Ren Fairs or you can rent when you get there - I am planning to rent for the Camlann festivals since I only have Renaissance period garb - not medieval
+* Plan on a full day minimum - most are a long drive so we often try to stay the weekend (you are free to come and go if you have your own ride)
 
-####Camlann Midsummer Festival Event Description:       
+***
+
+###Logistics
+_this will be updates as plans develope_
+
+**June 6/27** - Camlann (tentative - if I have a buddy) <http://www.camlann.org/midsomer%20festival.htm> 
+* tentative - waiting to see if I find someone to go with
+* this would be about a 3-4 hr drive north 
+* & I am planning to rent a costume once I get there because I don't own any medieval costumes
+* They do a _seriously amazing_ 5 or 6-course meal with historically accurate dishes, utinsels (no forks), seating, and entertainment - it is pretty much a real courtly feast (cost: $45) - I am flexible on whether we do this but it is kinda the best part
+
+**July 7/25** - Canturbury Ren Fair  
+* tentative - waiting to see if I find someone to go with
+* this would be about a 1.5 hr drive south to just outside Salem
+* this would be the most likely candidate for a one-day trip 
+
+**August 8/1** - WA Midsummer Ren Faire 
+* Definitely going: This is the **Best Ren Fair** I have been to on the West Coast!! Plan to stay for the after party (no, seriously, you get to go to the afterparty in costume!!! How cool is that??)
+* This is always a 2-day event - we get a cheap hotel neaby to make getting ready easier
+* First weekend is Pirates, second weekend is Fairies (these are the best two)
+
+**August 8/22** - Camlann Harvest Festival <http://www.camlann.org/harvest%20festival.htm> 
+* This is my Birthday weekend
+* I am planning to be there the whole weekend and do the feast!!  (cost: $45)
+    * (FYI) They do a _seriously amazing_ 5 or 6-course meal with historically accurate dishes, utinsels (no forks), seating, and entertainment - it is pretty much a real courtly feast
+
+**September 9/12 - 9/13** - Shrewsbury Ren Faire
+* This is a pretty small, but surprisingly fun and well organized event
+* Since it is a 3-hour drive south, it will probably be a full weekend ... not totally sure yet
+* It is only 1 weekend long and I missed it last year so I'm really hoping this one will work out
+
+
+***
+
+###Festival Descriptions & Details
+
+**June** 
+####Camlann Midsummer Festival Description:       
 * June 27 & 28, 2015    
 * Noon to 5:00 PM    
 
@@ -51,7 +96,9 @@ For lunch, our food stall offers wholesome ploughmanï¿½s meals, pasties, and 
 
 ***
 
-#### Canturbury Ren Fair Event Description:    
+
+**July** 
+#### Canturbury Ren Fair Festival Description:    
 **Come and Live the Majesty!**   
 <http://www.canterburyfaire.com/>  
 
@@ -64,8 +111,9 @@ Canterbury Renaissance Faire is an invitation to participate in an imaginative i
 
 ***
 
+
 **August**    
-####Washington Midsummer Renaissance Festival Event Description:     
+###Washington Midsummer Renaissance Festival Event Description:     
 _http://www.washingtonfaire.com/_
 
 * Dates: August **1-2**, 8-9, 15-16, 2015
@@ -76,7 +124,7 @@ _http://www.washingtonfaire.com/_
 Find treasures of the most amazing trinkets, gifts and noble garb amongst Her loyal merchants, or discover Adventure and Magic amidst the likes of Her brave Privateers, Her most Noble Companie of Foote, or the charming and mischievous Peasants of the village and all manner of Performers and Artisans! Hoist an ale in salute to the Noble Knights of the Dark Empire at the Royal Joust as they do battle for the Queen’s Favor!   
 _God Save The Queen!_
 
-#####Themes
+####Themes
 
 **1st Weekend**
 _(August 2-3)_
@@ -92,10 +140,10 @@ Third weekend we invite all visitors to our shire to be part of Her Majesty's Ro
 
 ***
 
-**August**   
-8/22 - Camlann Harvest Festival <http://www.camlann.org/harvest%20festival.htm> 
 
-###Camlann Harvest Festival Event Description:
+**August**   
+
+###Camlann Harvest Festival Description:
 * August 22nd & 23rd
 * Noon to 5:00 PM
 
@@ -128,13 +176,26 @@ For lunch, our food stall offers wholesome ploughmanï¿½s meals, pasties, and 
 
 **Call ahead to reserve a table for a wondrous dinner (5:00 to 7:00 pm).  Saturday & Sunday the Mid-somer Feast begins at 5:00 pm.
 
-
 ***
+
 
 **September**  
-9/12 - 9/13: Shrewsbury Ren Faire    
+####Shrewsbury Renaissance Faire Festival Description: 
+September 12th & 13th, 2015 
+_http://www.shrewfaire.com/_
 
-###Event Description:
+**Elizabethan Revels & Marketplace**  
+_An Interactive Living History Village_
 
+* Times: Gates are Open from 10am to 6pm 
+* Location: Kings Valley - Oregon 
+* Admission (adults): $11.00
+  
+Come be thee blythe and merry at the Renaissance Faire! Just 15 miles and 500 years away from downtown Corvallis. Here enchantment awaits young and old alike as jousting knights and noble steeds clash on the tourney fyld while minstrels, troubadours, jongleurs, dancers and bards fill the lanes with delight. 
+
+With over 125 artisan stalls and 1,000 costumed players, visitors can browse the village for unique hand made goods and one of a kind treasures while surrounded by Renaissance revelry and entertainment. Eat, drink, and be merry, for food purveyors are on hand within Friar Tuck's Forest, and children delight in games and adventures.  
+
+The only Fair of its kind in Oregon, this exciting event offers an educational interactive adventure in history, welcoming families and children. Modeled on the merriest of elements from the times of Shakespeare and Elizabeth I, and set in the historic renaissance of 1558 to 1603, here all the Faire is a stage, and everyone a player!  
 
 ***
+
