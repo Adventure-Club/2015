@@ -20,10 +20,11 @@
 **Please consider the following event constraints:**   
 * Costumes are required _(by me, not the festivals - they are far less tyrannical than I am)_ 
     * no specificity regarding _what_ costumes, but you should make an attempt to keep a logical continuity 
-    * i.e. I'm Spock, a time traveler from the future researching early human history, 
-    * or, I am a villager out to buy some bread and flirt with the cute knights/wenches, etc.
-    * I can loan costumes (male & female of a fairly wide variety) for Ren Fairs or you can rent when you get there - I am planning to rent for the Camlann festivals since I only have Renaissance period garb - not medieval
-* Plan on a full day minimum - most are a long drive so we often try to stay the weekend (you are free to come and go if you have your own ride)
+        * i.e. I'm Spock, a time traveler from the future researching early human history, 
+        * or, I am a villager out to buy some bread and flirt with the cute knights/wenches, etc.
+    * I can loan costumes (male & female of a fairly wide variety) for Ren Fairs or you can rent when you get there
+        * I am planning to rent for the Camlann festivals since I only have Renaissance period garb - not medieval
+* Plan on a full day minimum - most are a long drive so we often try to stay the weekend (you are - obviously - free to come and go if you have your own ride)
 
 ***
 
