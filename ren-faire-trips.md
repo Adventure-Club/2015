@@ -51,11 +51,16 @@ For lunch, our food stall offers wholesome ploughmanï¿½s meals, pasties, and 
 
 ***
 
-**July**  
-7/25 - Canturbury Ren Fair (Marc does Ragbrai) 
+#### Canturbury Ren Fair Event Description:    
+**Come and Live the Majesty!**   
+<http://www.canterburyfaire.com/>  
 
-###Event Description:
+* Dates: July 18-19, 25-26, 2015 
+* Times: Saturday and Sunday 10am - 6pm 
+* See the Joust Shows each faire day at Noon and 4pm! 
+* Admission (adults): $14/day or $24/weekend 
 
+Canterbury Renaissance Faire is an invitation to participate in an imaginative interactive environment modeled on elements from a plausible Summer Market Faire from the era of “Good Queen Bess” (Elizabeth I, 1558-1603). We see it create an interactive stage where faire goers can experience the sights and sounds, science, entertainments, crafts and life styles of Elizabethan Village Folk celebrating the best of their village life. 
 
 ***
 
