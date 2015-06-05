@@ -5,7 +5,7 @@
 3. Good luck, have fun!
 
 
-## visit the Adventure Club Wiki for event details: https://github.com/Adventure-Club/2015/wiki
+#### [Visit the Adventure Club Wiki for event details]( https://github.com/Adventure-Club/2015/wiki)
 
 _OR, check out the Adventure Club Google Calendar_
 
