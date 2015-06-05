@@ -55,7 +55,7 @@ For lunch, our food stall offers wholesome ploughmanï¿½s meals, pasties, and 
 **Come and Live the Majesty!**   
 <http://www.canterburyfaire.com/>  
 
-* Dates: July 18-19, 25-26, 2015 
+* Dates: July 18-19, **25-26**, 2015 
 * Times: Saturday and Sunday 10am - 6pm 
 * See the Joust Shows each faire day at Noon and 4pm! 
 * Admission (adults): $14/day or $24/weekend 
@@ -65,10 +65,30 @@ Canterbury Renaissance Faire is an invitation to participate in an imaginative i
 ***
 
 **August**    
-8/1 - WA Midsummer Ren Faire 
+####Washington Midsummer Renaissance Festival Event Description:     
+_http://www.washingtonfaire.com/_
 
-###Event Description:
+* Dates: August **1-2**, 8-9, 15-16, 2015
+* Location: At The Kelley Farm; 20021 Sumner Buckley Hwy, Bonney Lake, WA 98391
+* Hours: 10:00 am to 7:00 pm
 
+**Join Her Royal Majesty Queen Elizabeth on Her Royal Progress through the village of Merriwick as She tastes the Fyne fare and drink of the land!**  
+Find treasures of the most amazing trinkets, gifts and noble garb amongst Her loyal merchants, or discover Adventure and Magic amidst the likes of Her brave Privateers, Her most Noble Companie of Foote, or the charming and mischievous Peasants of the village and all manner of Performers and Artisans! Hoist an ale in salute to the Noble Knights of the Dark Empire at the Royal Joust as they do battle for the Queen’s Favor!   
+_God Save The Queen!_
+
+#####Themes
+
+**1st Weekend**
+_(August 2-3)_
+Join us for a weekend of Piratical Plunder! Our opening weekend, we invite our visitors to unleash the pirate within. Everyone has a bit of the pirate in their heart, and this be the perfect weekend to slap on that eye patch, don a feathered hat and join the rollicking crew of the Emerald Rose in a weekend that will surely be a treasure to remember. 
+
+**2nd Weekend**  
+_(August 9-10)_  
+Our second weekend, we are proud to present Amy Brown, renowned faerie and fantasy artist; she will be signing autographs from 1pm until 3pm both days. We shall spend the weekend celebrating the fantastical and magical world of faeries, trolls, dragons and more. We encourage our audience to dress in the spirit of the worlds beyond, from faerie wings to unicorn horns, join us in our mystical romp through the faerie realms.
+
+**3rd Weekend**   
+_(August 16-17)_   
+Third weekend we invite all visitors to our shire to be part of Her Majesty's Royal Masquerade! A perfect opportunity to show off beautiful Carnivale or character masks, or visit our wonderful face painting and mask maker's booths to become part of the magic. With dancing, singing and all forms of merriment, our final weekend will be a truly spectacular festival of color, mystery, coquetry and amusement. 
 
 ***
 
